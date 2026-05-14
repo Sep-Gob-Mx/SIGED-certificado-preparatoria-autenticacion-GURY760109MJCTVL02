@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-GURY760109MJCTVL02
+GURY760109MJCTVL02
